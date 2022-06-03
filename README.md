@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Daniiiconladdidonkeykonghy
+- 👀 I’m interested in videogame and manga
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on nobody i'm solitary 💔
+- 📫 How to reach me u can't LoL
