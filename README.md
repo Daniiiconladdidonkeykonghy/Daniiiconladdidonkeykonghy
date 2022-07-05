@@ -2,5 +2,5 @@
 - 👀 I’m interested in videogame and manga
 - 🌱 I’m currently learning c family (c,c#,c++,f#)
 - 💞️ I’m looking to collaborate with: nobody i'm solitary 💔 (joke)
-- 📫 How to reach me: discord Yah💀#3124 if you want a project or want to collaborate with me conctat me
+- 📫 How to reach me: discord KKEEVIN#3124 if you want a project or want to collaborate with me conctat me
 - ⚠ ALL MY CODE IS IN ITALIAN ⚠
